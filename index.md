@@ -10,3 +10,5 @@ Never mind.
 As he said:
 > thank you 
 > for your support
+
+<img src="https://www.hella-gutmann.com/fileadmin/_processed_/2/5/csm_HGS_mm77-SDI-Landingpage_03_1182b8bab0.png"/>
