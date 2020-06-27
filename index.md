@@ -7,3 +7,6 @@ Never mind.
 2. Beautiful
 3. Brilliant
 4. Funny
+As he said:
+> thank you 
+> for your support
